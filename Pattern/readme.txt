@@ -1,1 +1,0 @@
-Aastha is one of the most awesome cat ever.
